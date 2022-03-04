@@ -1,0 +1,1 @@
+A new thing i learnt is that designers can make a case study based on an already existing project ie an app, before now i thought case studies are made based on projects a designer was actively involved in but now i undersatnd that it could be on a project a designer doesnt even have an affiliate with.
